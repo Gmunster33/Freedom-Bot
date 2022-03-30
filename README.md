@@ -1,0 +1,3 @@
+# Freedom-Bot
+- Fat stacks and mad hacks...
+- 150%+ APY baby
